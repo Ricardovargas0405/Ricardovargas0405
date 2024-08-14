@@ -16,4 +16,5 @@ Contato 📫 ricardovargas@professor.educacao.sp.gov.br
 
 ![](https://media.tenor.com/s7_LbXNcD2QAAAAM/corinthians-corinthians-token.gif)
 
+![](https://media.tenor.com/WoUbJ54CH4YAAAAM/euphoric-wrwc.gif)
 
