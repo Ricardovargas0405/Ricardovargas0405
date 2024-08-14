@@ -14,3 +14,6 @@ Sou Estudante em Tecnologia da informação
 
 Contato 📫 ricardovargas@professor.educacao.sp.gov.br
 
+![](https://media.tenor.com/s7_LbXNcD2QAAAAM/corinthians-corinthians-token.gif)
+
+
